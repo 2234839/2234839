@@ -6,4 +6,3 @@
 
 而今心力致良知，但愿成好人
 
-## [讨论社区 discord](https://discord.gg/qf8Ss7dwXg) 欢迎你来这里和我讨论任何问题
